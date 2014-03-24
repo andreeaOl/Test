@@ -1,1 +1,1 @@
-Det här är Thors committ! Heja Sverige!
+﻿Haha fuck you Thor
